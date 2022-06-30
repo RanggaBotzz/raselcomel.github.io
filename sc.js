@@ -1,2 +1,2 @@
 /* by Relldev メイ */
-/* use rasel comel */
+/* use rangga Ganz */
